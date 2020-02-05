@@ -12,4 +12,4 @@ Uh Chat [Sign Up](https://uhchat.net/).
 
 
 
-Visit us [Beplas Studio](https://beplasstudio.com/).
+© 2020, [Beplas Studio](https://beplasstudio.com/).
